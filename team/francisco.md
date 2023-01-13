@@ -1,1 +1,1 @@
-Ideas will go here lol
+Maybe something where we like use music to like do stuff
